@@ -67,6 +67,6 @@ By pivoting from a **cash-burning acquisition model** to a **product-led, divers
 
 ---
 
-📌 **Author:** [Your Name]  
-📌 **Date:** August 2025  
+📌 **Author:** [PARTH KHAROLA]  
+📌 **Date:** 18 August 2025  
 
